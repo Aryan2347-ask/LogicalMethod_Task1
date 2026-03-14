@@ -1,0 +1,1 @@
+# LogicalMethod_Task1
